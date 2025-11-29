@@ -1,1 +1,1 @@
-adam olana çok bile
+
